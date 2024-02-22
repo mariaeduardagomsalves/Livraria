@@ -1,0 +1,1 @@
+Enquanto autora de um livro busco alguém que faça uma arte para a capa de um livro meu ( se refere ao front), e que não tenha nenhuma arte abstrata (se refere ao cook), e que tenha cores bem vivas com bastate ilustrações referentes personagem principal (se refere ao cook). 
